@@ -1,3 +1,3 @@
 # edhoti
 
-idhi kuda something andi
+idhi kuda something andi, something avutundhi
